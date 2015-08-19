@@ -1,0 +1,2 @@
+###This is my college directory
+All items published here were/are items provied by my professors at Los Rios Community College District. These items are property of the Los Rios Community Collge District, it's officers, administrators, professors, and other authorized agents; and as such are subject to their respective terms, conditions and copyrights.
